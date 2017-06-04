@@ -1,0 +1,2 @@
+# fairyreloadingandfix
+computer informational specialist here so what i do is monitor web activity I was hoping to basically have a tune up or update on software but it's basically been so long since i've done anything that i don't remember I Just used a code ihuh and calculated the point of intersection on account and loaded it with a predeposition point in which i would use more code to have it standby at intersecting node points and then collisadate all node points 
